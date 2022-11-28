@@ -13,3 +13,4 @@
     - [ ]  [Safari](https://support.apple.com/downloads/safari)
 
 #### ***[Clique aqui para abrir no notion](https://www.notion.so/Ferramentas-B-sicas-0d867b1698124d4497fc1524544db484)***
+Feito com ❤️ pelo PROF ENSINA
